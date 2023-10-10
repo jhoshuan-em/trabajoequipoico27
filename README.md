@@ -1,0 +1,2 @@
+# trabajoequipoico27
+proyecto
